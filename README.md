@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @firatcanulukaya
+- 👀 I’m interested in developing, web design, graphic design and gaming.
+- 🌱 I’m currently learning web development.
+- 📫 How to reach me: frtcn@sade.network (also social medias.)
